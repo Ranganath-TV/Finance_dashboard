@@ -51,8 +51,8 @@ https://www.linkedin.com/in/ranganatha-tv-a005a0354?utm_source=share&utm_campaig
 
 ## 📬 Contact
 
-Feel free to fork, adapt, or collaborate.  
-DM for custom dashboards or domain-specific visualizations.
+Name: Ranganatha TV
+Email: ranga1999tv@gmail.com
 
 ## 🏷️ Tags
 
